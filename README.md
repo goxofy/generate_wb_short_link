@@ -1,1 +1,1 @@
-Short Your URL With WB.
+Shorten Your URL With WB.
